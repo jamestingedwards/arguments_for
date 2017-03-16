@@ -8,6 +8,4 @@ references:
     date_published: 
 ---
 
-Sex before marriage is wrong.
-
-Schools should have no part in normalizing deviant Acts.
+Guns shouldn't be controlled.

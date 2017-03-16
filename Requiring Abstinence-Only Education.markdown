@@ -8,4 +8,4 @@ references:
     date_published: 
 ---
 
-The federal government should prevent states from decriminalizing marijuana use.
+Sex before marriage makes society worse. Talking about sex will make more sex happen.
